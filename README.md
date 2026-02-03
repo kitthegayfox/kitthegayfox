@@ -13,4 +13,6 @@ you can see more of me via my socials:
 - [mastodon](https://wetdry.world/@lexibyte)
 - [discord](https://discord.gg/jKeE7RVQXQ)
 
+current pfp is by [artifyber](https:///twitter.com/artifyber)!! ^^
+
 have a nice day!! :3
