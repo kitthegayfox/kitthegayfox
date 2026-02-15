@@ -9,11 +9,8 @@ i'm a demiboy, and probably either bisexual or pansexual, i have to figure that 
 
 i'm also the founder behind [AstroNT](https://youtube.com/@astrontworkstation) and [KuroWiki](https://github.com/Axeon-Network/kurowiki)!
 
-you can see more of me via my socials:
-- [youtube](https://youtube.com/kitsixtyfour)
-- [mastodon](https://wetdry.world/@lexibyte)
-- [discord](https://discord.gg/jKeE7RVQXQ)
+you can see more of me via [youtube](https://youtube.com/kitsixtyfour) and [mastodon](https://wetdry.world/@kitsixtyfour)!
 
-current pfp is by [artifyber](https:///twitter.com/artifyber)!! ^^
+current pfp is by [accelldraws](https:///bsky.app/profile/accelldraws.bsky.social)!! ^^
 
 have a nice day!! :3
